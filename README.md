@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aswamba22
 - 👀 I’m interested in you
-- 🌱 I’m currently learning at ABU zaria
+- 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on a special idea
 - 📫 How to reach me ...
 
